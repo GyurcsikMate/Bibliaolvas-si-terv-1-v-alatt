@@ -1,0 +1,1 @@
+# Bibliaolvas-si-terv-1-v-alatt
